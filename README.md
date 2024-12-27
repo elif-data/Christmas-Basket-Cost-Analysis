@@ -12,5 +12,3 @@ I also allowed 3 bottles of white wine (11%) per person and nibbles such as mixe
 
 *** One thing I noticed is that Tesco and Sainsbury's have  --- ALDI price match
 
-This analysis highlights Sainsbury’s effort to stay competitive, and how our perceptions of affordability may differ from reality!
-
