@@ -1,4 +1,4 @@
-📊 Christmas Basket Cost Analysis 🎄 
+## 📊 Christmas Basket Cost Analysis 🎄 
 
 I compared the cost of an average Christmas basket across UK grocery stores, and found some interesting stuff!
 
